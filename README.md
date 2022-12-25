@@ -1,6 +1,6 @@
 Hi! My name is Joann L. Monteverde,
 I'm from Zamboanga City.
-I just recently resigned from my full time job to persue a career in tech.
+I just recently resigned from my full time job to pursue a career in tech.
 
 I'm currently fond of doing crochet.
 I do read books sometimes.
